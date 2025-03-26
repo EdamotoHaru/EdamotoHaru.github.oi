@@ -1,0 +1,1 @@
+# EdamotoHaru.github.oi
